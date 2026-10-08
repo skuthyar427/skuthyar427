@@ -3,7 +3,7 @@
 # Sahana Kuthyar
 
 ### Postdoctoral Researcher · Fred Hutch
-### Damon Runyon Quantitative Biology Fellow
+### Damon Runyon Quantitative Biology Fellow (2026-29)
 
 Microbial metabolism &nbsp; | &nbsp; Host–pathogen interactions &nbsp; | &nbsp; Quantitative biology
 
